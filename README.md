@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chris0585
+- 👋 Hi, I’m @chris0585 (Chris Kobayashi)
 - 👀 I’m interested in Film and Game Music Composing, Kontakt scripting, the gym and mountain bikes.
 - 🌱 I’m currently learning to be better at Kontakt
 - 💞️ I’m looking to collaborate on Film and Game Music projects
